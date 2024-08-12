@@ -10,6 +10,5 @@ Meu nome é Lucas Vieira
 
 paludettomarcelo@gmail.com
 
-@marcelopaludetto
 
 ![](https://media.giphy.com/media/qHPr0Mr5mfbbJLJQz1/giphy.gif?cid=ecf05e474jvcavozqals35klutsv30d2sxt5p1164pgy5l7s&ep=v1_gifs_search&rid=giphy.gif&ct=g)
